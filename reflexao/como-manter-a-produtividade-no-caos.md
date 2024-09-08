@@ -76,6 +76,6 @@ Aplicar a Técnica 80/20: Concentro-me nas atividades que trazem os maiores resu
 Quero saber: O que você faz para manter o foco e evitar a sobrecarga de informações? Compartilhe suas estratégias nos comentários abaixo! Juntos, podemos aprender e inspirar novas maneiras de melhorar nossa produtividade.
 
 ## Dicas de leitura:
-[A arte de fazer acontecer: Guia prático](https://amzn.to/461Q8wt)
-[O princípio 80/20: Os segredos para conseguir mais com menos nos negócios e na vida](https://amzn.to/3S6V3X0)
-[Mindset do foco - Aprenda a eliminar as distrações e alcance mais resultados com menos esforço](https://amzn.to/4cxiMb7)
+- [A arte de fazer acontecer: Guia prático](https://amzn.to/461Q8wt)
+- [O princípio 80/20: Os segredos para conseguir mais com menos nos negócios e na vida](https://amzn.to/3S6V3X0)
+- [Mindset do foco - Aprenda a eliminar as distrações e alcance mais resultados com menos esforço](https://amzn.to/4cxiMb7)
